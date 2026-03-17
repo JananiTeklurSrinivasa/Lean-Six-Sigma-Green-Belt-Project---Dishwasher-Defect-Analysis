@@ -1,0 +1,1 @@
+# Lean-Six-Sigma-Green-Belt-Project---Dishwasher-Defect-Analysis
